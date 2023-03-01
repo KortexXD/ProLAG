@@ -1,1 +1,1 @@
-pyčo
+pyčo jdi na LAR
